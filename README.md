@@ -1,4 +1,4 @@
-# Hi there 👋
+# Hi! 👋🏾
 
 ![373640facd5b03492d83061b974bee67-sticker](https://github.com/user-attachments/assets/99b496ad-09df-4d3c-aa21-cd6b1f168d7c)
 
